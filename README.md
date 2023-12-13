@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... technology and investigation
 - 🌱 I’m currently learning ... html
 - 💞️ I’m looking to collaborate on ... psychology projects
-- 📫 How to reach me ... don't reach me xd only dm here
+
 
 <!---
 reddsky51/reddsky51 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
