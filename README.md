@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tomoki S
 - 👀 I’m interested in ... technology and investigation
-- 🌱 I’m currently learning ... html,js
+- 🌱 I’m currently learning ... html
 - 💞️ I’m looking to collaborate on ... psychology projects
 
 
