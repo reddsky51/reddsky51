@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... technology and investigation
 - 🌱 I’m currently learning ... html, psychometrics, visual arts, amateur disc jockey
 - 💞️ I’m looking to collaborate on ... psychology project
-- ☄️🦇🧠🌙💫📖🎮
+- ☄️🦇🧠🌙💫📖🎮🚀
 
 -🌟: Jhv - The One - Pan-horus
 <!---
