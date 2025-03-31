@@ -5,7 +5,7 @@
 - ☄️🦇🧠🌙💫📖🎮
 - Ψ🖌️💻🚀
 
-aqui pongo solo las cosas en las que no bromeo... y bosquejos
+aqui pongo solo bosquejos
 
 🌟: Jhv - The One - Pan-horus
 <!---
