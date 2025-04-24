@@ -5,7 +5,7 @@
 - ☄️🦇🧠🌙💫📖🎮
 - Ψ🖌️💻🚀
 
-aqui pongo solo bosquejos
+aqui pongo mis bosquejos
 
 🌟: Jhv - The One - Pan-horus
 <!---
