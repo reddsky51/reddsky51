@@ -5,8 +5,6 @@
 - ☄️🦇🧠🌙💫📖🎮
 - Ψ🖌️💻🚀
 
-aqui pongo mis bosquejos
-
 🌟: Jhv - The One - Pan-horus
 <!---
 reddsky51/reddsky51 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
